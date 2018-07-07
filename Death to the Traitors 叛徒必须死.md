@@ -3,7 +3,8 @@
 
 歌词/翻译来自知乎用户@Searl Galan
 
-[歌曲](http://music.163.com/dj?id=1370029755&userid=328877362)
+[电台地址](http://music.163.com/dj?id=1370029755&userid=328877362)
+
     The imperialists rape and plunder
     帝国主义强奸和掠夺
     This glorious land
