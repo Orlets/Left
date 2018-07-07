@@ -1,6 +1,8 @@
 ## The Foggy Dew 迷雾露珠
 1916年复活节起义
 
+[电台地址](http://music.163.com/dj?id=1369245220&userid=328877362)
+
     As down the glen one Easter morn
     复活节的早晨我走下峡谷
     To a city fair rode I
