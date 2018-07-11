@@ -1,4 +1,5 @@
 ## Sachsenhausenlied 萨克森豪森之歌
+在1936年冬天由德国政治犯Karl Wloch和共产主义者Bernhard Bästlein和Karl Fischer创作
 
 [电台地址](http://music.163.com/dj?id=1369848085&userid=328877362)
 
